@@ -5,3 +5,4 @@
 2. **Тест проверки знаний 2-го вебинара:** https://forms.gle/gjyWBruCzskstSjAA
 3. **Тест проверки знаний 3-го вебинара:** https://forms.gle/CCgoy5G2kzLd5wpk7
 4. **Тест проверки знаний 4-го вебинара:** https://forms.gle/F4hLMqocsssX8gsA8
+4. **Тест проверки знаний 5-го вебинара:** https://forms.gle/oZFaWskwYDY2my3p8
