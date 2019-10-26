@@ -7,3 +7,4 @@
 4. **Тест проверки знаний 4-го вебинара:** https://forms.gle/F4hLMqocsssX8gsA8
 5. **Тест проверки знаний 5-го вебинара:** https://forms.gle/oZFaWskwYDY2my3p8
 6. **Тест проверки знаний 6-го вебинара:** https://forms.gle/VUxGJMLJ1bJD5bwt5
+7. **Тест проверки знаний 7-го вебинара:** https://forms.gle/HetRbMDdJFGtmHWF6
